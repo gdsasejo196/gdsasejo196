@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Gaudiso
+- 👋 Hi, I’m Gaudioso
 - 👀 I’m interested in join to Crowd1, it’s fabulous!- 🌱 I’m currently affiliated...
 - 💞️ By purchasing a package, you will have the opportunity to create a sustainable income.- 📫 How to reach me? Here is my personal registration link : https://crowd1.com/signup/gaudioso2020
 - https://crowd1.com/signup/gaudioso2020✨ special ✨ repository because its `README.md` 
